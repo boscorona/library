@@ -117,3 +117,4 @@ The books I read, have read and must read before death
 - [The Effective Executive] (https://www.amazon.ca/Effective-Executive-Definitive-Getting-Things/dp/0060833459)
 - [Poor Charlie's Almanack] (https://www.goodreads.com/book/show/944652.Poor_Charlie_s_Almanack)
 - [Give and Take: Why Helping Others Drives Our Success] (https://www.amazon.ca/Give-Take-Helping-Others-Success/dp/0143124986)
+- [Talking to Crazy] (https://www.amazon.ca/Talking-Crazy-Irrational-Impossible-People/dp/0814436366)
