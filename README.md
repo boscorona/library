@@ -4,6 +4,7 @@ The books I read, have read and must read before death
 ![alt tag](http://images-cdn.moviepilot.com/image/upload/c_fill,h_313,w_750/t_mp_quality_gif/p3qjotkqbenjg4xvuxts.gif)
 
 - [The Art of Learning] (https://www.amazon.ca/Art-Learning-Journey-Optimal-Performance/dp/0743277465)
+
 - [We Learn Nothing] (https://www.amazon.com/We-Learn-Nothing-Tim-Kreider/dp/1439198713)
 - [How Google Works] (http://www.howgoogleworks.net/)
 - [Reinventing Gravity] (http://www.goodreads.com/book/show/3050585-reinventing-gravity)
