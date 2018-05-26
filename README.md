@@ -145,6 +145,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The House of Dimon](https://www.amazon.com/House-Dimon-JPMorgans-Jamie-Financial/dp/0470924691)
 - [The House of Morgan](https://www.amazon.com/House-Morgan-American-Banking-Dynasty/dp/0802144659)
 - [Howard Hughes: His Life And Madness](https://www.amazon.ca/gp/product/0393326020/ref=s9_simh_gw_p14_d0_i2?pf_rd_m=A3DWYIK6Y9EEQB&pf_rd_s=desktop-1&pf_rd_r=P71AME9F2NBWTNJGS3HC&pf_rd_t=36701&pf_rd_p=2055621862&pf_rd_i=desktop)
+- [Head First Design Patterns](http://shop.oreilly.com/product/9780596007126.do)
 - [Revitalizing a Nation](https://www.amazon.co.uk/Revitalizing-Nation-Statement-Opinions-Pronouncements/dp/1494010453)
 - [General MacArthur Wisdom and Visions](https://www.amazon.com/General-MacArthur-Wisdom-Visions-Douglas/dp/1681624109)
 - [The Monk and the Riddle](https://hbr.org/product/monk-and-the-riddle-the-art-of-creating-a-life-whi/an/6447-PBK-ENG)
