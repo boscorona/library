@@ -95,6 +95,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Managing Humans](https://www.amazon.com/Managing-Humans-Humorous-Software-Engineering/dp/1484221575/ref=as_li_ss_tl?ie=UTF8&qid=1486923077&sr=8-1&keywords=managing+humans&linkCode=sl1&tag=beigee-20&linkId=2218253ddaf38dfc4ae03043cb7da490)
 - [The Tipping Point](https://www.amazon.com/gp/product/0316346624?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0316346624)
 - [The 22 Immutable Laws of Marketing](https://www.amazon.com/gp/product/0887306667?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0887306667)
+- [Achtung - Panzer!](https://www.amazon.com/Achtung-Panzer-Cassell-Military-Classics/dp/0304352853/ref=pd_bxgy_14_img_3?_encoding=UTF8&pd_rd_i=0304352853&pd_rd_r=32b6374d-6494-11e8-8ce9-a3e8d727e07b&pd_rd_w=0IyUi&pd_rd_wg=lgG4L&pf_rd_i=desktop-dp-sims&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3914568618330124508&pf_rd_r=06M4HXH87MY4QZKC49JH&pf_rd_s=desktop-dp-sims&pf_rd_t=40701&psc=1&refRID=06M4HXH87MY4QZKC49JH)
 - [Envisioning Information](https://www.amazon.com/gp/product/0961392118?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0961392118)
 - [Leaving Microsoft to Change the World](https://www.amazon.com/gp/product/0061121088?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0061121088)
 - [Fortune's Formula](https://www.amazon.com/Fortunes-Formula-Scientific-Betting-Casinos/dp/0809045990)
