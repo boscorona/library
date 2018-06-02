@@ -126,6 +126,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The Autobiography of Malcolm X](https://www.amazon.com/gp/product/0345350685/?tag=ryanholnet-20)
 - [The Millennium Whole Earth Catalog](https://www.amazon.com/Millennium-Whole-Earth-Catalog/dp/0062510592)
 - [Competing on the Edge : Strategy as Structured Chaos](https://www.amazon.com/Competing-Edge-Strategy-Structured-Chaos/dp/0875847544)
+- [Confessions of the Pricing Man](https://www.amazon.com/gp/product/B016XMVQA6/ref=as_li_qf_sp_asin_il_tl?ie=UTF8&tag=jamesclear-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B016XMVQA6&linkId=2fde7cd70e79645749b49c78a7e0f81d)
 - [The Hero with a Thousand Faces](https://www.amazon.com/Thousand-Faces-Collected-Joseph-Campbell/dp/1577315936)
 - [The Lessons of History](https://www.amazon.com/Lessons-History-Will-Durant/dp/143914995X)
 - [The Gift of Fear](https://www.goodreads.com/book/show/56465.The_Gift_of_Fear)
