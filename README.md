@@ -390,6 +390,8 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Up from Slavery](https://www.amazon.com/Up-Slavery-Dover-Thrift-Editions/dp/0486287386/?tag=ryanholnet-20)
 - [Bodyguard of Lies: The Extraordinary True Story Behind D-Day](https://www.amazon.com/Bodyguard-Lies-Extraordinary-Story-Behind/dp/1585746924/ref=pd_sbs_14_2?_encoding=UTF8&pd_rd_i=1585746924&pd_rd_r=3SK5GZ3H7N4S1X1YCWKP&pd_rd_w=HhVAP&pd_rd_wg=odX6H&psc=1&refRID=3SK5GZ3H7N4S1X1YCWKP)
 - [Reveille for Radicals](https://www.amazon.com/Reveille-Radicals-Saul-Alinsky/dp/0679721126/?tag=ryanholnet-20)
+- [My Journey: Transforming Dreams Into Actions](https://www.amazon.com/My-Journey-Transforming-Dreams-Actions/dp/8129124912/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&psc=1&refRID=T4V4G5RRRAYM1FEFFK0D)
+- [Wings of Fire: An Autobiography of APJ Abdul Kalam](https://www.amazon.com/Wings-Fire-Autobiography-Abdul-Kalam/dp/8173711461)
 - [Rules for Radicals: A Practical Primer for Realistic Radicals](https://www.amazon.com/Rules-Radicals-Practical-Primer-Realistic/dp/0679721134/?tag=ryanholnet-20)
 - [The Moral Sayings of Publius Syrus](https://www.amazon.com/Moral-Sayings-Publius-Syrus-Roman/dp/1614276668/?tag=ryanholnet-20)
 - [A Sense of Urgency](https://www.amazon.com/Sense-Urgency-John-P-Kotter/dp/1501246976)
