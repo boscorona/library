@@ -238,6 +238,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The Facebook Effect](http://www.amazon.ca/The-Facebook-Effect-Company-Connecting/dp/1439102120)
 - [From Lascaux to Brooklyn](http://www.amazon.ca/From-Lascaux-Brooklyn-Paul-Rand/dp/0300066767)
 - [The Score Takes Care of Itself: My Philosophy of Leadership](http://www.amazon.ca/The-Score-Takes-Care-Itself-ebook/dp/B002G54Y04)
+- [The Tao of Programming](http://www.mit.edu/~xela/tao.html)
 - [Netflixed](https://www.amazon.com/Netflixed-Epic-Battle-Americas-Eyeballs-ebook/dp/B007X5ZE4W)
 - [Ready Player One: A Novel](https://www.amazon.com/Ready-Player-One-Ernest-Cline/dp/0307887448)
 - [High Output Management](http://www.amazon.ca/High-Output-Management-Andrew-Grove/dp/0679762884)
