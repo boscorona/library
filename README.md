@@ -135,6 +135,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The Gift of Fear](https://www.goodreads.com/book/show/56465.The_Gift_of_Fear)
 - [Abundance: The Future Is Better Than You Think](https://www.amazon.com/Abundance-Future-Better-Than-Think/dp/1451614217)
 - [Steve Jobs](https://www.amazon.ca/Steve-Jobs-Walter-Isaacson/dp/1451648545)
+- [Inside the Tornado](https://www.amazon.com/Inside-Tornado-Strategies-Developing-Hypergrowth/dp/0060745819)
 - [Motivation and Personality, 3rd Edition](https://www.amazon.com/Motivation-Personality-3rd-Abraham-Maslow/dp/0060419873)
 - [Letting Go](https://www.amazon.com/Letting-David-Hawkins-M-D-Ph-D/dp/1401945015)
 - [The River of Doubt](https://www.amazon.com/River-Doubt-Theodore-Roosevelts-Darkest/dp/0767913736)
