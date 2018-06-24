@@ -373,6 +373,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Positioning](https://www.amazon.com/gp/product/0071373586/ref=as_li_qf_sp_asin_il_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0071373586&linkCode=as2&tag=fuzzbug&linkId=VSDRD7O3IZR3U7CV)
 - [Let My People Go Surfing](https://www.amazon.com/gp/product/0143037838/ref=as_li_qf_sp_asin_il_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0143037838&linkCode=as2&tag=fuzzbug&linkId=JG2LBGKVMZOVKXZL)
 - [Freakonomics](https://www.barnesandnoble.com/w/freakonomics-steven-d-levitt/1100550563;jsessionid=448E061286690D0B8953AE067CA07D2C.prodny_store01-atgap10?ean=9780060731335&st=AFF&2sid=HarperCollins%20Publishers%20LLC_7252169_NA&sourceId=AFFHarperCollins%20Publishers%20LLCM000023#/)
+- [The Turnaround Kid](https://www.amazon.com/Turnaround-Kid-Rescuing-Americas-Companies/dp/1400156122)
 - [Prediction Machines](https://www.amazon.com/Prediction-Machines-Economics-Artificial-Intelligence/dp/1633695670)
 - [Managing Oneself](https://www.amazon.com/gp/product/142212312X/ref=as_li_qf_sp_asin_il_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=142212312X&linkCode=as2&tag=fuzzbug&linkId=QXMNYFQTG64PAUAO)
 - [Zingerman's Guide to Giving Great Service](https://www.amazon.com/gp/product/1401301436/ref=as_li_qf_sp_asin_il_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=1401301436&linkCode=as2&tag=fuzzbug&linkId=FJLMFL7K3HMRMDKR)
