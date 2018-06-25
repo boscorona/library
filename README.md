@@ -226,6 +226,8 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Maverick: The Success Story Behind the World's Most Unusual Workplace](http://www.goodreads.com/book/show/32994.Maverick)
 - [Higher Than the Top](http://www.amazon.ca/Higher-Than-Top-Redenbacher-Bowerman/dp/0687170028)
 - [The First Tycoon: The Epic Life of Cornelius Vanderbilt](https://www.amazon.com/First-Tycoon-Epic-Cornelius-Vanderbilt/dp/1400031745)
+- [Rainmaking Conversations](https://www.amazon.com/Rainmaking-Conversations-Influence-Persuade-Situation/dp/0470922230)
+- [Reinventing American Health Care](https://www.amazon.com/Reinventing-American-Health-Care-Outrageously-ebook/dp/B00G1SD7BE)
 - [The Believing Brain](https://www.amazon.com/Believing-Brain-Conspiracies-How-Construct-Reinforce/dp/1250008808)
 - [The Daily Stoic](https://www.goodreads.com/book/show/29093292-the-daily-stoic)
 - [The Tao of Leadership](http://www.amazon.ca/Tao-Leadership-John-Heider/dp/1623860199/ref=sr_1_1?s=books&ie=UTF8&qid=1450596128&sr=1-1&keywords=the+tao+of+leadership)
