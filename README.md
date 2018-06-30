@@ -288,6 +288,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Cold Calling Techniques](https://www.amazon.com/Cold-Calling-Techniques-That-Really/dp/1480572276)
 - [Charlie Munger: The Complete Investor](https://www.amazon.com/Charlie-Munger-Complete-Investor-Publishing/dp/023117098X)
 - [The Willpower Instinct: How Self-Control Works, Why It Matters, and What You Can Do to Get More of It](https://www.amazon.ca/Willpower-Instinct-Self-Control-Works-Matters/dp/1583335080)
+- [John Doeer's List](https://www.goodreads.com/list/show/34363.GSB_recommendations_to_John_Doerr)
 - [Flow: The Psychology of Optimal Experience](https://www.amazon.ca/Flow-Psychology-Experience-Mihaly-Csikszentmihalyi/dp/0061339202)
 - [Strategic Alliances and Marketing Partnerships](https://www.amazon.ca/Strategic-Alliances-Marketing-Partnerships-Collaboration/dp/0749454849)
 - [Make It Stick: The Science of Successful Learning](https://www.amazon.com/Make-Stick-Science-Successful-Learning/dp/0674729013)
