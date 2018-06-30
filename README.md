@@ -91,6 +91,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The 4 Disciplines of Execution](https://www.amazon.com/Disciplines-Execution-Achieving-Wildly-Important/dp/1491517751)
 - [Asking the Right Questions](https://www.amazon.com/Asking-Right-Questions-11th-Browne/dp/0321907957/)
 - [8 Weeks to Optimum Health](https://www.amazon.com/gp/product/034549802X?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=034549802X)
+- [Measure What Matters](https://www.amazon.com/Measure-What-Matters-Google-Foundation/dp/0525536221)
 - [Scrum: The Art of Doing Twice the Work in Half the Time](https://www.amazon.com/Scrum-Doing-Twice-Work-Half/dp/038534645X)
 - [Managing Humans](https://www.amazon.com/Managing-Humans-Humorous-Software-Engineering/dp/1484221575/ref=as_li_ss_tl?ie=UTF8&qid=1486923077&sr=8-1&keywords=managing+humans&linkCode=sl1&tag=beigee-20&linkId=2218253ddaf38dfc4ae03043cb7da490)
 - [The Tipping Point](https://www.amazon.com/gp/product/0316346624?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0316346624)
