@@ -92,6 +92,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The 4 Disciplines of Execution](https://www.amazon.com/Disciplines-Execution-Achieving-Wildly-Important/dp/1491517751)
 - [Asking the Right Questions](https://www.amazon.com/Asking-Right-Questions-11th-Browne/dp/0321907957/)
 - [8 Weeks to Optimum Health](https://www.amazon.com/gp/product/034549802X?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=034549802X)
+- [Judgment in Managerial Decision Making](https://www.amazon.com/gp/product/1118065700/ref=as_at/?imprToken=7TH22-9F-6X3yYXvHXe.JA&slotNum=0&ie=UTF8&tag=farnamstreet-20&camp=1789&creative=9325&linkCode=w61&creativeASIN=1118065700&linkId=090ca2216bc46c9489a0ae362e14f1bd)
 - [Measure What Matters](https://www.amazon.com/Measure-What-Matters-Google-Foundation/dp/0525536221)
 - [Scrum: The Art of Doing Twice the Work in Half the Time](https://www.amazon.com/Scrum-Doing-Twice-Work-Half/dp/038534645X)
 - [Managing Humans](https://www.amazon.com/Managing-Humans-Humorous-Software-Engineering/dp/1484221575/ref=as_li_ss_tl?ie=UTF8&qid=1486923077&sr=8-1&keywords=managing+humans&linkCode=sl1&tag=beigee-20&linkId=2218253ddaf38dfc4ae03043cb7da490)
