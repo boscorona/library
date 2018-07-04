@@ -17,6 +17,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Self-Reliance](https://www.goodreads.com/book/show/1760630.Self_Reliance)
 - [The Nazi Officer's Wife](https://www.amazon.com/Nazi-Officers-Wife-Survived-Holocaust/dp/068817776X)
 - [Makeba: My Story](https://www.amazon.com/Makeba-My-Story-Miriam/dp/0452262348/ref=la_B001HP2VCM_1_1/140-3813511-2117713?s=books&ie=UTF8&qid=1516767147&sr=1-1)
+- [It's Your Ship: Management Techniques from the Best Damn Ship in the Navy](https://www.amazon.com/Its-Your-Ship-Management-Anniversary/dp/145552302X)
 - [The Little Flowers of St. Francis](https://www.amazon.com/Little-Flowers-St-Francis-Additional/dp/0385075448)
 - [The Emperor's Handbook](https://www.goodreads.com/book/show/20937210-the-emperor-s-handbook)
 - [The Measure of a Man: A Spiritual Autobiography](https://www.amazon.com/Measure-Man-Spiritual-Autobiography-Oprahs/dp/0061357901/ref=sr_1_2?s=books&ie=UTF8&qid=1513296159&sr=1-2&keywords=measure+of+a+man)
