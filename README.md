@@ -101,6 +101,8 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Achtung - Panzer!](https://www.amazon.com/Achtung-Panzer-Cassell-Military-Classics/dp/0304352853/ref=pd_bxgy_14_img_3?_encoding=UTF8&pd_rd_i=0304352853&pd_rd_r=32b6374d-6494-11e8-8ce9-a3e8d727e07b&pd_rd_w=0IyUi&pd_rd_wg=lgG4L&pf_rd_i=desktop-dp-sims&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=3914568618330124508&pf_rd_r=06M4HXH87MY4QZKC49JH&pf_rd_s=desktop-dp-sims&pf_rd_t=40701&psc=1&refRID=06M4HXH87MY4QZKC49JH)
 - [Envisioning Information](https://www.amazon.com/gp/product/0961392118?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0961392118)
 - [Leaving Microsoft to Change the World](https://www.amazon.com/gp/product/0061121088?ie=UTF8&tag=offsitoftimfe-20&linkCode=as2&camp=1789&creative=390957&creativeASIN=0061121088)
+- [The Goal](https://www.amazon.com/Goal-Process-Ongoing-Improvement/dp/0884271951)
+- [Enchiridion](https://www.amazon.com/Enchiridion-Dover-Thrift-Editions-Epictetus/dp/0486433595)
 - [Fortune's Formula](https://www.amazon.com/Fortunes-Formula-Scientific-Betting-Casinos/dp/0809045990)
 - [Getting Real](http://gettingreal.37signals.com/)
 - [Conversational Intelligence](https://www.amazon.com/Conversational-Intelligence-Leaders-Extraordinary-Results/dp/1629561436/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=ABXWWD50BH6TSMRSQDSW)
