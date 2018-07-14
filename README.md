@@ -345,6 +345,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Making Silicon Valley](https://www.amazon.com/Making-Silicon-Valley-Innovation-Technology/dp/0262622114)
 - [Season of the Witch](https://www.amazon.com/Season-Witch-Enchantment-Terror-Deliverance/dp/1439108242/)
 - [From Counterculture to Cyberculture](https://www.amazon.com/gp/product/0226817423/)
+- [Purple Cow](https://www.amazon.com/Purple-Cow-New-Transform-Remarkable/dp/1591843170)
 - [The Little Kingdom](https://www.amazon.com/Little-Kingdom-Private-Story-Computer/dp/0688039731/)
 - [Something Ventured](https://www.amazon.com/Something-Ventured-Tom-Perkins/dp/B0079ZWUW0/)
 - [Meditations](https://www.amazon.com/Meditations-Marcus-Aurelius/dp/1503280462/ref=pd_lpo_sbs_14_img_2?_encoding=UTF8&psc=1&refRID=EH8WTCNS18KBY73J3J30)
