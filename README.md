@@ -166,6 +166,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Answer to History](https://www.amazon.com/Answer-History-Mohammad-Reza-Pahlavi/dp/0812827554)
 - [The Art of the Start 2.0](http://guykawasaki.com/books/the-art-of-the-start/)
 - [Managing Oneself](https://www.amazon.com/Managing-Oneself-Harvard-Business-Classics-ebook/dp/B00TXS49UW/ref=pd_sim_351_1?_encoding=UTF8&psc=1&refRID=0EY4FC6H090DPY83MFAM)
+- [Negotiating the Impossible](https://www.amazon.com/Negotiating-Impossible-Deadlocks-Resolve-Conflicts/dp/1520014635)
 - [Making Ideas Happen](https://www.amazon.com/Making-Ideas-Happen-Overcoming-Obstacles/dp/1591844118)
 - [When I Stop Talking, You'll Know I'm Dead](https://www.amazon.com/When-Stop-Talking-Youll-Know-ebook/dp/B00351DSRI/ref=pd_sim_351_2?_encoding=UTF8&psc=1&refRID=0EY4FC6H090DPY83MFAM)
 - [A Manual for Living](https://www.amazon.com/Manual-Living-Little-Book-Wisdom/dp/0062511114)
