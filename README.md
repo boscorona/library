@@ -46,6 +46,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Edison As I Know Him](https://www.amazon.com/Edison-As-I-Know-Him/dp/1432561588)
 - [Healing Back Pain: The Mind-Body Connection](https://www.amazon.com/Healing-Back-Pain-Mind-Body-Connection/dp/0446557684)
 - [Maxims for Revolutionists](https://www.amazon.com/Maxims-Revolutionists-Bernard-Shaw/dp/1499591756)
+- [How The Mighty Fall: And Why Some Companies Never Give In](https://www.amazon.com/How-Mighty-Fall-Companies-Never/dp/0977326411)
 - [Augustine's Laws, Sixth Edition](https://www.amazon.com/Augustines-Chairman-Lockheed-Corporation-Augustine/dp/1563472406)
 - [The Way to Wealth](https://www.youtube.com/watch?v=kV6ju75wqxI)
 - [The Innovator's Dilemma](https://www.amazon.com/Innovators-Dilemma-Revolutionary-Change-Business/dp/0062060244)
