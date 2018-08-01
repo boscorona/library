@@ -78,6 +78,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Star Wars: Dark Force Rising](http://www.goodreads.com/book/show/216442.Dark_Force_Rising?from_search=true&search_version=service)
 - [On the Shortness of Life](https://www.amazon.com/Shortness-Life-Penguin-Great-Ideas/dp/0143036327)
 - [Star Wars: The Last Command](http://www.goodreads.com/book/show/216422.The_Last_Command?from_search=true&search_version=service)
+- [From Third World to First: The Singapore Story: 1965-2000](https://www.goodreads.com/book/show/144409.From_Third_World_to_First)
 - [The Remains of the Day](https://www.goodreads.com/book/show/28921.The_Remains_of_the_Day)
 - [The Story of My Experiments With Truth](https://www.goodreads.com/book/show/112803.The_Story_of_My_Experiments_With_Truth)
 - [Erich Von Manstein](https://www.amazon.com/Erich-Von-Manstein-Hitlers-Strategist/dp/1612000592)
