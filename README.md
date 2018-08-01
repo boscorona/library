@@ -276,6 +276,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Agile!: The Good, the Hype and the Ugly](http://www.amazon.com/Agile-The-Good-Hype-Ugly/dp/3319051547)
 - [The Design of Everyday Things: Revised and Expanded Edition](http://www.amazon.com/The-Design-Everyday-Things-Expanded/dp/0465050654)
 - [Facts and Fallacies of Software Engineering](http://www.amazon.com/Facts-Fallacies-Software-Engineering-Robert/dp/0321117425)
+- [The Sovereign Individual: Mastering the Transition to the Information Age](https://www.amazon.com/Sovereign-Individual-Mastering-Transition-Information/dp/0684832720)
 - [Dawn of the New Everything](https://www.amazon.com/Dawn-New-Everything-Encounters-Reality/dp/1627794093)
 - [Manhattan Beach](https://www.goodreads.com/book/show/34467031-manhattan-beach)
 - [Thank You for Being Late](https://www.amazon.com/Thank-You-Being-Late-Accelerations/dp/0374273537)
