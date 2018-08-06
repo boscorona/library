@@ -294,6 +294,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Valley Boy: The Education of Tom Perkins](http://www.amazon.com/Valley-Boy-Education-Tom-Perkins/dp/1592404030)
 - [The Monk Who Sold His Ferrari](https://www.amazon.ca/Monk-Who-Sold-His-Ferrari/dp/0006385125)
 - [Think and Grow Rich: Unabridged Text of First Edition](https://www.amazon.ca/Think-Grow-Rich-Unabridged-First/dp/1578988632)
+- [Damn Good Advice](https://www.amazon.com/Damn-Good-Advice-People-Talent/dp/0714863483/ref=sr_1_1?s=books&ie=UTF8&qid=1533518191&sr=1-1&keywords=Damn-Good-Advice-People-Talent)
 - [Writing the Breakout Novel](https://www.amazon.com/gp/product/158297182X/ref=as_at/?imprToken=miNUglkpH830iCi4J0NH-Q&slotNum=3&ie=UTF8&camp=1789&creative=9325&creativeASIN=158297182X&linkCode=w61&tag=farnamstreet-20)
 - [How to Write a Damn Good Novel](https://www.amazon.com/gp/product/0312010443/ref=as_at/?imprToken=miNUglkpH830iCi4J0NH-Q&slotNum=2&ie=UTF8&camp=1789&creative=9325&creativeASIN=0312010443&linkCode=w61&tag=farnamstreet-20)
 - [Made to Stick](https://www.amazon.com/gp/product/1400064287/ref=as_at/?imprToken=miNUglkpH830iCi4J0NH-Q&slotNum=1&ie=UTF8&camp=1789&creative=9325&creativeASIN=1400064287&linkCode=w61&tag=farnamstreet-20)
