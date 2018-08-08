@@ -124,6 +124,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [Plutarch's Lives Volume 1](https://www.amazon.com/gp/product/0375756760/?tag=ryanholnet-20)
 - [The Lives of the Most Excellent Painters, Sculptors, and Architects](https://www.amazon.com/gp/product/0375760369?tag=ryanholnet-20)
 - [7 Powers: The Foundations of Business Strategy](https://www.amazon.com/7-Powers-Foundations-Business-Strategy-ebook/dp/B01MRLFFQ7)
+- [The Manager's Path: A Guide for Tech Leaders Navigating Growth and Change](https://www.amazon.com/Managers-Path-Leaders-Navigating-Growth/dp/1491973897)
 - [Cracking the Sales Management Code](https://www.amazon.com/Cracking-Sales-Management-Code-Performance/dp/0071765735/ref=pd_lpo_sbs_14_t_2?_encoding=UTF8&psc=1&refRID=EAMTYSNRK1SHFZ2VV7EQ)
 - [Up the Organization](https://www.amazon.com/Up-Organization-Corporation-Stifling-Strangling/dp/0787987751)
 - [Predictable Revenue](https://www.amazon.com/Predictable-Revenue-Business-Practices-Salesforce-com/dp/0984380213/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=EAMTYSNRK1SHFZ2VV7EQ)
