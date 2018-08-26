@@ -23,6 +23,7 @@ I believe knowledge is freedom, freedom to do more, be more to create and give m
 - [The Emperor's Handbook](https://www.goodreads.com/book/show/20937210-the-emperor-s-handbook)
 - [The Measure of a Man: A Spiritual Autobiography](https://www.amazon.com/Measure-Man-Spiritual-Autobiography-Oprahs/dp/0061357901/ref=sr_1_2?s=books&ie=UTF8&qid=1513296159&sr=1-2&keywords=measure+of+a+man)
 - [The Hero with a Thousand Faces](https://www.amazon.com/Thousand-Faces-Collected-Joseph-Campbell/dp/1577315936/ref=asap_bc?ie=UTF8)
+- [A Class with Drucker: The Lost Lessons of the World's Greatest Management Teacher](https://www.amazon.ca/Class-Drucker-Lessons-Greatest-Management/dp/0814414184)
 - [The Business of Changing the World](https://www.amazon.com/Business-Changing-World-Strategic-Philanthropy/dp/0071481516)
 - [The Great Leveler](https://www.amazon.com/Great-Leveler-Inequality-Twenty-First-Princeton/dp/0691165025)
 - [The Outsiders](https://www.amazon.com/Outsiders-Unconventional-Radically-Rational-Blueprint-ebook/dp/B009G1T74O/ref=pd_sim_351_4?_encoding=UTF8&psc=1&refRID=32JG4J43GE14F09GAYNA)
