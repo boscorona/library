@@ -37,6 +37,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [On Liberty](https://www.amazon.com/Liberty-John-Stuart-Mill-ebook/dp/B076X6Q2RZ/ref=asap_bc?ie=UTF8)
 - [Autobiography](https://www.amazon.com/Autobiography-Penguin-Classics-John-Stuart/dp/0140433163/ref=la_B000APZ4H4_1_4?s=books&ie=UTF8&qid=1510626652&sr=1-4)
 - [How Not to Be Wrong: The Power of Mathematical Thinking](https://www.amazon.com/How-Not-Be-Wrong-Mathematical/dp/0143127535)
+- [The Diary of a Young Gir](https://www.goodreads.com/book/show/48855.The_Diary_of_a_Young_Girl)
 - [What Do You Care What Other People Think?](https://www.amazon.com/What-Care-Other-People-Think/dp/0393320928)
 - [Reinventing Gravity](http://www.goodreads.com/book/show/3050585-reinventing-gravity)
 - [Be Here Now](https://drive.google.com/drive/folders/0B3o2ZoX248cWVEd1SGxHSDVvaXM)
