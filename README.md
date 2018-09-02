@@ -49,6 +49,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [Healing Back Pain: The Mind-Body Connection](https://www.amazon.com/Healing-Back-Pain-Mind-Body-Connection/dp/0446557684)
 - [Maxims for Revolutionists](https://www.amazon.com/Maxims-Revolutionists-Bernard-Shaw/dp/1499591756)
 - [How The Mighty Fall: And Why Some Companies Never Give In](https://www.amazon.com/How-Mighty-Fall-Companies-Never/dp/0977326411)
+- [The Diary of a Young Girl](https://www.amazon.ca/Diary-Young-Girl-Anne-Frank/dp/0553296981/ref=asc_df_0553296981/?tag=googleshopc0c-20&linkCode=df0&hvadid=263678563891&hvpos=1o2&hvnetw=g&hvrand=5386102841406068724&hvpone=&hvptwo=&hvqmt=&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9001454&hvtargid=pla-433800418016&psc=1)
 - [Augustine's Laws, Sixth Edition](https://www.amazon.com/Augustines-Chairman-Lockheed-Corporation-Augustine/dp/1563472406)
 - [The Way to Wealth](https://www.youtube.com/watch?v=kV6ju75wqxI)
 - [The Innovator's Dilemma](https://www.amazon.com/Innovators-Dilemma-Revolutionary-Change-Business/dp/0062060244)
