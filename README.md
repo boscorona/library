@@ -14,6 +14,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [Wildest Dream: The Biography of George Mallory](https://www.amazon.com/Wildest-Dream-Biography-George-Mallory/dp/0898867517)
 - [Lincoln on Leadership](https://www.amazon.com/Lincoln-Leadership-Executive-Strategies-Tough/dp/0446394599/ref=sr_1_1?s=books&ie=UTF8&qid=1531633127&sr=1-1&keywords=Lincoln+on+Leadership)
 - [Feynman Lectures On Gravitation](https://www.amazon.com/dp/0813340381)
+- [Letters From A Stoic](https://www.goodreads.com/book/show/97411.Letters_from_a_Stoic)
 - [She Comes First: The Thinking Man's Guide to Pleasuring a Woman](https://www.amazon.com/She-Comes-First-Thinking-Pleasuring/dp/0060538260/ref=pd_lpo_sbs_14_t_1?_encoding=UTF8&psc=1&refRID=1N0D01H803CP4TDY6BW8)
 - [Self-Reliance](https://www.goodreads.com/book/show/1760630.Self_Reliance)
 - [The Nazi Officer's Wife](https://www.amazon.com/Nazi-Officers-Wife-Survived-Holocaust/dp/068817776X)
