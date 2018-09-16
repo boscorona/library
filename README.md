@@ -63,6 +63,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [Compassionate Capitalism](https://www.amazon.com/Compassionate-Capitalism-Corporations-Doing-Integral/dp/1564147142)
 - [The Pyramid Principle: Logic in Writing and Thinking](https://www.amazon.com/Pyramid-Principle-Logic-Writing-Thinking/dp/0273710516)
 - [The Personal MBA: Master the Art of Business](https://www.amazon.com/gp/product/1591843529/)
+- [George Washington: A Life From Beginning to End](https://www.amazon.ca/George-Washington-Beginning-President-Biographies-ebook/dp/B01KTB6IJ6/ref=sr_1_11?s=books&ie=UTF8&qid=1537119305&sr=1-11&keywords=george+washington)
 - [The Outsiders](https://www.amazon.com/Outsiders-Unconventional-Radically-Rational-Blueprint-ebook/dp/B009G1T74O/ref=pd_sim_351_3?_encoding=UTF8&psc=1&refRID=TVFHTCPS4CDJ1RDC7CW9)
 - [The Inner Citadel](https://www.amazon.com/Inner-Citadel-Meditations-Marcus-Aurelius/dp/0674007077)
 - [Dying Every Day](https://www.amazon.com/Dying-Every-Day-Seneca-Court/dp/0307596877)
