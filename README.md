@@ -35,6 +35,8 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [Lost Victories](https://www.amazon.com/Lost-Victories-Memoirs-Hitlers-Brilliant/dp/0760320543/ref=pd_cp_14_1?_encoding=UTF8&pd_rd_i=0760320543&pd_rd_r=2GTZQ7AGEPR94S818KHR&pd_rd_w=n2QfE&pd_rd_wg=8YV4L&psc=1&refRID=2GTZQ7AGEPR94S818KHR)
 - [Creativity, Inc.: Overcoming the Unseen Forces That Stand in the Way of True Inspiration](https://www.amazon.com/Creativity-Inc-Overcoming-Unseen-Inspiration/dp/0812993012)
 - [How Google Works](http://www.howgoogleworks.net/)
+- [Nothing Ventured, Nothing Win](https://www.amazon.com/gp/product/0340486139/ref=dbs_a_def_rwt_bibl_vppi_i5)
+- [High Adventure](https://www.amazon.com/gp/product/1932302026/ref=dbs_a_def_rwt_hsch_vapi_taft_p1_i0)
 - [On Liberty](https://www.amazon.com/Liberty-John-Stuart-Mill-ebook/dp/B076X6Q2RZ/ref=asap_bc?ie=UTF8)
 - [Autobiography](https://www.amazon.com/Autobiography-Penguin-Classics-John-Stuart/dp/0140433163/ref=la_B000APZ4H4_1_4?s=books&ie=UTF8&qid=1510626652&sr=1-4)
 - [How Not to Be Wrong: The Power of Mathematical Thinking](https://www.amazon.com/How-Not-Be-Wrong-Mathematical/dp/0143127535)
