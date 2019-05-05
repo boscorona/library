@@ -6,6 +6,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 ![alt tag](https://media1.tenor.com/images/53a44ea8d17e8e8a8c1d200cd2a2c466/tenor.gif?itemid=4432507)
 
 
+- [Climbing Ice](https://www.amazon.com/Climbing-Ice-Yvon-Chouinard/dp/0871562073)
 - [The Art of Learning](https://www.amazon.ca/Art-Learning-Journey-Optimal-Performance/dp/0743277465)
 - [Principles](https://www.goodreads.com/book/show/12935037-principles)
 - [My Inventions: The Autobiography of Nikola Tesla](https://www.amazon.com/My-Inventions-Autobiography-Nikola-Tesla/dp/161293093X/ref=sr_1_1?s=books&ie=UTF8&qid=1500856859&sr=1-1&keywords=nikola+tesla+biography)
