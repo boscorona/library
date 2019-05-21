@@ -6,6 +6,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 ![alt tag](https://media1.tenor.com/images/53a44ea8d17e8e8a8c1d200cd2a2c466/tenor.gif?itemid=4432507)
 
 
+- [Una Vision Desde La Cumbre](https://www.amazon.ca/Vision-Desde-Cumbre-Edmund-Hillary/dp/8483062119)
 - [Climbing Ice](https://www.amazon.com/Climbing-Ice-Yvon-Chouinard/dp/0871562073)
 - [The Art of Learning](https://www.amazon.ca/Art-Learning-Journey-Optimal-Performance/dp/0743277465)
 - [Principles](https://www.goodreads.com/book/show/12935037-principles)
