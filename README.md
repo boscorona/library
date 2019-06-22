@@ -3,6 +3,10 @@ The books I read, have read and must read before death.
 
 I believe knowledge is freedom, freedom to do more, be more, to create and give more. The reason you are where you are today is because you know what you know and don't know what you don't know. Imagine if you knew more, you could take higher levels of action, do more with your time on earth and impact the world in ways your old knowing self could only dream about, I found myself in books, I know you might too.
 
+“Don't join the book burners. Don't think you're going to conceal faults by concealing evidence that they ever existed. Don't be afraid to go in your library and read every book...” 
+― Dwight D. Eisenhower
+
+
 ![alt tag](https://media1.tenor.com/images/53a44ea8d17e8e8a8c1d200cd2a2c466/tenor.gif?itemid=4432507)
 
 
