@@ -1,14 +1,13 @@
-# Bosco's library :books: 
+# Bosco's library :books:
+
 The books I read, have read and must read before death.
 
 I believe knowledge is freedom, freedom to do more, be more, to create and give more. The reason you are where you are today is because you know what you know and don't know what you don't know. Imagine if you knew more, you could take higher levels of action, do more with your time on earth and impact the world in ways your old knowing self could only dream about, I found myself in books, I know you might too.
 
-“Don't join the book burners. Don't think you're going to conceal faults by concealing evidence that they ever existed. Don't be afraid to go in your library and read every book...” 
+“Don't join the book burners. Don't think you're going to conceal faults by concealing evidence that they ever existed. Don't be afraid to go in your library and read every book...”
 ― Dwight D. Eisenhower
 
-
 ![alt tag](https://media1.tenor.com/images/53a44ea8d17e8e8a8c1d200cd2a2c466/tenor.gif?itemid=4432507)
-
 
 - [Una Vision Desde La Cumbre](https://www.amazon.ca/Vision-Desde-Cumbre-Edmund-Hillary/dp/8483062119)
 - [Climbing Ice](https://www.amazon.com/Climbing-Ice-Yvon-Chouinard/dp/0871562073)
@@ -49,7 +48,6 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [The Diary of a Young Gir](https://www.goodreads.com/book/show/48855.The_Diary_of_a_Young_Girl)
 - [What Do You Care What Other People Think?](https://www.amazon.com/What-Care-Other-People-Think/dp/0393320928)
 - [Reinventing Gravity](http://www.goodreads.com/book/show/3050585-reinventing-gravity)
-- [Be Here Now](https://drive.google.com/drive/folders/0B3o2ZoX248cWVEd1SGxHSDVvaXM)
 - [Zero to One](http://www.amazon.ca/Zero-One-Notes-Startups-Future/dp/0804139296/ref=sr_1_1?s=books&ie=UTF8&qid=1450596054&sr=1-1&keywords=zero+to+one)
 - [Antifragile: Things That Gain from Disorder](https://www.goodreads.com/book/show/13530973-antifragile)
 - [The Mind Of The Strategist: The Art of Japanese Business](https://www.amazon.com/Mind-Strategist-Art-Japanese-Business/dp/0070479046/ref=sr_1_1?ie=UTF8&s=books&qid=1279071075&sr=8-1)
@@ -245,7 +243,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 
 - [Revolution for Dummies: Laughing Through the Arab Spring](https://www.amazon.com/Revolution-Dummies-Laughing-Through-Spring/dp/0062446894/ref=sr_1_4?s=books&ie=UTF8&qid=1507131932&sr=1-4&keywords=arab+spring)
 - [Dark Night of the Soul](http://www.amazon.com/Dark-Night-Dover-Thrift-Editions/dp/0486426939)
-- [The Subtle Art of Not Giving a F*ck](https://www.goodreads.com/book/show/28257707-the-subtle-art-of-not-giving-a-f-ck)
+- [The Subtle Art of Not Giving a F\*ck](https://www.goodreads.com/book/show/28257707-the-subtle-art-of-not-giving-a-f-ck)
 - [The Wealth of Humans](https://www.amazon.com/Wealth-Humans-Status-Twenty-first-Century/dp/1250075807)
 - [The Sovereign Individual](https://www.amazon.com/Sovereign-Individual-Mastering-Transition-Information/dp/0684832720)
 
@@ -396,9 +394,7 @@ I believe knowledge is freedom, freedom to do more, be more, to create and give 
 - [Poor Charlie's Almanack](https://www.goodreads.com/book/show/944652.Poor_Charlie_s_Almanack)
 - [An Unfinished Life: John F. Kennedy](https://www.amazon.com/Unfinished-Life-John-Kennedy-1917/dp/0316907928/ref=pd_sim_14_2?_encoding=UTF8&psc=1&refRID=TBMB413Q5KFG80NG8V8W)
 
-
 ![alt tag](http://www.nasa.gov/centers/kennedy/images/content/618568main_1962-11-16-1600_946-710.jpg)
-
 
 - [Give and Take: Why Helping Others Drives Our Success](https://www.amazon.ca/Give-Take-Helping-Others-Success/dp/0143124986)
 - [Talking to Crazy](https://www.amazon.ca/Talking-Crazy-Irrational-Impossible-People/dp/0814436366)
